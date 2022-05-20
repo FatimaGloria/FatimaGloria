@@ -12,7 +12,7 @@ Currently learning:
 (not time travels yet, but soon :woman_astronaut:)
 
 📫 How to reach me:  
-[LinkedIn](www.linkedin.com/in/fatima-gloria-025830238)  
+[LinkedIn](https://www.linkedin.com/in/fatima-gloria-025830238/)  
 [Twitter](https://twitter.com/jaglo_095)  
 
 😄 Pronouns: She/her  
