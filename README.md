@@ -2,7 +2,7 @@
 
 
 👾   About me:  
-I'm a Software Development Student  
+I'm a Software Engineer Student  
 
 Currently learning:  
 :sparkles: JavaScript with Node.js  
