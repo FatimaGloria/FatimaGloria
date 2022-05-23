@@ -16,4 +16,4 @@ Currently learning:
 [Twitter](https://twitter.com/jaglo_095)  
 
 😄 Pronouns: She/her  
-⚡ Fun fact: I'm a Gryffindor 
+⚡ Fun fact: Huge HP Fan! Go Gryffindor! 
