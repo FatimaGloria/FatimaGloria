@@ -13,7 +13,6 @@ Currently learning:
 
 📫 How to reach me:  
 [LinkedIn](https://www.linkedin.com/in/fatima-gloria-025830238/)  
-[Twitter](https://twitter.com/jaglo_095)  
 
 😄 Pronouns: She/her  
-⚡ Fun fact: Huge HP Fan! Go Gryffindor! 
+⚡ Fun fact: Proud Gryffindor! 
